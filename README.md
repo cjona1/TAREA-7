@@ -38,6 +38,19 @@ OBJETIVOS ESPECÍFICOS
 
 # 2.-MARCO TEÓRICO
 
+![image](https://user-images.githubusercontent.com/116817673/216770445-46f838c6-de33-4183-89e3-82832bf1477c.png)
+
+![image](https://user-images.githubusercontent.com/116817673/216770452-f972f818-7a22-4753-a8c9-1eb52a0abd58.png)
+
+![image](https://user-images.githubusercontent.com/116817673/216770459-3804c4e5-3b7f-4210-9f15-86979f0c303d.png)
+
+![image](https://user-images.githubusercontent.com/116817673/216770465-9170d75a-f8d8-4002-bdbe-2e6bcd9bf94d.png)
+
+![image](https://user-images.githubusercontent.com/116817673/216770472-cca44201-fc04-4489-b2db-218282474aa4.png)
+
+![image](https://user-images.githubusercontent.com/116817673/216770475-3a2061bb-0a2f-482d-a16e-176b3e13972d.png)
+
+![image](https://user-images.githubusercontent.com/116817673/216770480-5e079cf1-4082-43ce-ae82-e4923493b534.png)
 
 # 3.-EXPLICACION Y RESOLUCION DE PROBLEMAS.
 
