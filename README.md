@@ -234,6 +234,7 @@ Es muy probable que uno de los devanados segundarios este en cortocircuito o el 
 
 En el presente video se explican unos ejercicios para la mejor comprensión del tema.
 
+https://youtu.be/xUAtaAHIhvw
 
 # 5.-CONCLUSIONES
 
